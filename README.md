@@ -1,0 +1,1 @@
+# algo2otomasyon__odev
